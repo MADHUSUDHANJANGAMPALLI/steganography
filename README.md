@@ -2,3 +2,4 @@
 ![Output2](https://github.com/user-attachments/assets/63ce0b01-5877-4fb4-9109-8ed70fe72b93)
 ![output3](https://github.com/user-attachments/assets/5ef4c8f4-b874-4ad8-9a78-c9c5639dfe30)
 ![Exa](https://github.com/user-attachments/assets/fa00848e-a2a5-406b-8d9f-297cbd79a5fc)
+[Presentation.pptx](https://github.com/user-attachments/files/19042119/Presentation.pptx)
